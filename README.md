@@ -8,7 +8,7 @@ You have finally discovered my Github profile! <br>
 Please Feel free to leave a ⭐ on my repositories if you like them, I'd really appreciate it!. <br>
 Join my Services Discord <a href="https://discord.gg/Rxb79WPTap"><b>here</b></a><br>
 
-<i>My Stats!</i> 📊
+<i>My Statistics!</i> 📊
 
 </div>
 
